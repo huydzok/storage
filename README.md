@@ -1,1 +1,1 @@
-# storage
+[# storage](https://link4m.co/api-shorten/v2?api=650052128c48484de71ab0ef&url=https://viduchung.info/key/?key={key})https://link4m.co/api-shorten/v2?api=650052128c48484de71ab0ef&url=https://viduchung.info/key/?key={key}
